@@ -2,6 +2,6 @@
 - 👀 I’m interested in the intersection between STEM and social change.
 - 🌱 I’m currently learning Python, C, and SQL.
 - 💞️ I’m looking to collaborate on beginner friendly projects. 
-- 📫 How to reach me -- kim.cortes.martinez@gmail.com & https://www.linkedin.com/in/kim-cortes-martinez/
+- 📫 How to reach me -- kim.cortes.martinez@gmail.com (personal), kcortesmartinez@college.harvard.edu (college), & https://www.linkedin.com/in/kim-cortes-martinez/
 - 😄 Pronouns: she/they
 - ⚡ Fun fact: I learned English from watching Mickey Mouse! 
